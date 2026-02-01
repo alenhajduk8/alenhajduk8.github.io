@@ -1,1 +1,3 @@
-Jebiga nije islo
+Gasthaus Schlossle
+
+Dobrodosli na stranicu Gasthaus Schlossle
